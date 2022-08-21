@@ -51,7 +51,7 @@ Queen Elisa is simple Multi divece whatsapp bot in srilanka Made By DarkMaker Ba
 # 
 # 
  
-``` THANKS TO  ALL HELPERS 💞```
+``` THANKS TO  ALL HELPERS 💞``
 + [𝚂𝙻 𝚁𝙴𝙰𝙻𝚃𝙴𝙲𝙷]() | For website
 + [𝚂𝙰𝙽𝚄𝚆𝙰]()  | Helps
 + [𝚃𝙷𝙸𝙽𝚄𝚁𝙰]()  | Helps
